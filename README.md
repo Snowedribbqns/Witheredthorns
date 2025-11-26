@@ -1,16 +1,41 @@
-— ᴅɪᴠɪᴅᴇᴅ ʙᴇᴛᴡᴇᴇɴ ʜᴇᴀᴠᴇɴ ᴀɴᴅ ʜᴇʟʟ ` ✧
+— ᴅɪᴠɪᴅᴇᴅ ʙᴇᴛᴡᴇᴇɴ ʜᴇᴀᴠᴇɴ ᴀɴᴅ ʜᴇʟʟ ` ✧ 
+<img width="1200" height="480" alt="Untitled237_20251126195805" src="https://github.com/user-attachments/assets/a120064b-73b8-4abd-b500-3de992248c12" />
 
-<!--
-**Witheredthorns/Witheredthorns** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+[𝑮𝒊𝒇𝒕𝒆𝒅 𝒃𝒚 𝑲𝒊𝒚𝒐.](https://github.com/Our16bitwars)
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+★ 𝑨𝒓𝒊, 𝑴𝒂𝒇𝒖, 𝑹𝒆𝒊 𝒐𝒓 𝒀𝒖𝒌𝒊
+
+★ 𝑺𝒉𝒆/𝒕𝒉𝒆𝒚
+
+
+
+᧔࿔᧓⋆₊‧°𐐪♡𐑂°₊⋆⑅˚₊
+
+✧𝑩𝒀𝑰; 
+
+★𝒀𝒐𝒖 𝒂𝒓𝒆 𝒂𝒍𝒍𝒐𝒘𝒆𝒅 𝒕𝒐 𝒄𝒉𝒂𝒕 𝒘𝒊𝒕𝒉 𝒃𝒖𝒕 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒊 𝒄𝒐𝒎𝒆 𝒐𝒇𝒇 𝒂𝒔 𝒎𝒆𝒂𝒏 𝒃𝒆𝒄𝒂𝒖𝒔𝒆 𝒊 𝒅𝒐𝒏'𝒕 𝒌𝒏𝒐𝒘 𝒚𝒐𝒖 𝒕𝒉𝒂𝒕 𝒘𝒆𝒍𝒍. 𝑱𝒖𝒔𝒕 𝒅𝒐𝒏'𝒕 𝒃𝒆 𝒘𝒆𝒊𝒓𝒅 𝒐𝒓 𝒚𝒐𝒖'𝒓𝒆 𝒈𝒆𝒕𝒕𝒊𝒏𝒈 𝒃𝒍𝒐𝒄𝒌𝒆𝒅.
+
+
+★𝑺𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒊 𝒎𝒂𝒚 𝒃𝒆 𝒔𝒊𝒕𝒕𝒊𝒏𝒈 𝒘𝒊𝒕𝒉 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 𝒔𝒐 𝒋𝒖𝒔𝒕 𝒂𝒔𝒌 𝒕𝒐 𝒔𝒊𝒕 𝒘𝒊𝒕𝒉 𝒖𝒔 𝒂𝒏𝒅 𝒊'𝒍𝒍 𝒂𝒔𝒌 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅𝒔.★𝑪+𝒉 𝒊𝒔 𝒂𝒍𝒍𝒐𝒘𝒆𝒅 𝒃𝒖𝒕 𝒔𝒐𝒎𝒆𝒕𝒊𝒎𝒆𝒔 𝒊 𝒎𝒊𝒈𝒉𝒕 𝒉𝒂𝒗𝒆 "𝑫𝒏𝒊𝒖𝒄𝒇/𝒈𝒇". 𝑺𝒐 𝒊 𝒅𝒐𝒏'𝒕 𝒘𝒂𝒏𝒕 𝒂𝒏𝒚𝒐𝒏𝒆 𝒕𝒂𝒍𝒌𝒊𝒏𝒈 𝒕𝒐 𝒎𝒆 𝒐𝒕𝒉𝒆𝒓 𝒕𝒉𝒂𝒏 𝒄𝒍𝒐𝒔𝒆 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 𝒐𝒓 𝒎𝒚 𝒈𝒇.
+
+★𝒊 𝒂𝒎 𝒕𝒂𝒌𝒆𝒏 𝒔𝒐 𝒑𝒍𝒆𝒂𝒔𝒆 𝒅𝒐𝒏'𝒕 𝒃𝒆 𝒘𝒆𝒊𝒓𝒅 𝒘𝒊𝒕𝒉 𝒎𝒆. 𝑰 𝒄𝒂𝒏 𝒈𝒆𝒕 𝒖𝒎𝒄𝒐𝒎𝒇𝒐𝒓𝒕𝒂𝒃𝒍𝒆 𝒘𝒊𝒕𝒉 𝒑𝒆𝒐𝒑𝒍𝒆, 𝒚𝒐𝒖 𝒌𝒏𝒐𝒘.
+
+᧔࿔᧓⋆₊‧°𐐪♡𐑂°₊⋆⑅˚₊
+
+𝑰 𝒂𝒎 𝒗𝒆𝒓𝒚 𝒗𝒆𝒓𝒚 𝒄𝒐𝒐𝒍 𝒔𝒐 𝒑𝒍𝒆𝒂𝒔𝒆 𝒃𝒚 𝒎𝒚 𝒇𝒓𝒊𝒆𝒏𝒅(𝑰 𝒅𝒐𝒏'𝒕 𝒃𝒊𝒕𝒆 𝒊 𝒑𝒓𝒐𝒎𝒊𝒔𝒆🥹)
+
+
+᧔࿔᧓⋆₊‧°𐐪♡𐑂°₊⋆⑅˚₊ 𝑺𝒐𝒄𝒊𝒂𝒍𝒔★
+
+[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆☆](https://witheredthorns.straw.page)
+
+
+
+
+
+
+
+
+<img width="1200" height="480" alt="Untitled237_20251126200220" src="https://github.com/user-attachments/assets/5277d2e9-d1ba-4704-ab7a-702c6a917380" />
