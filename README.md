@@ -1,6 +1,15 @@
 — ᴅɪᴠɪᴅᴇᴅ ʙᴇᴛᴡᴇᴇɴ ʜᴇᴀᴠᴇɴ ᴀɴᴅ ʜᴇʟʟ ` ✧ 
 <img width="1200" height="480" alt="Untitled237_20251126195805" src="https://github.com/user-attachments/assets/a120064b-73b8-4abd-b500-3de992248c12" />
 
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3146wn7sqxgjltfrqbsegkzyucfy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false">
+  </a>
+</p>
+
+
+
 [𝑮𝒊𝒇𝒕𝒆𝒅 𝒃𝒚 𝑲𝒊𝒚𝒐.](https://github.com/Our16bitwars)
 
 
